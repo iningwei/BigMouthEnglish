@@ -11,3 +11,5 @@ Yoshiaki Nishimura,a former Miyazaki stalwart who produced the Oscar-nonimated "
 Ayumu Watanabe - whose beautiful "The Children of the Sea" was shown out of competition at the festival - worried about visual "standardization" and lack of originality,with "fewer and fewer nimators who can draw well by hand."
 
 Amel Lacombe,whose company Eurozoom is a key French animation distributor,said the industry's travails are due to its rapid growth,and now "we are in a period of adjustment".She believes that the Japanese authorities are waking up to anime's importance and global reach "as a export force".
+
+AFP/20190625/Lala
