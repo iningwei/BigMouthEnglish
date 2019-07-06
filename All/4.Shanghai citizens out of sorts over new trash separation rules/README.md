@@ -15,3 +15,5 @@ China is building hundreds of "waste to energy" plants that use garbage to gener
 Huang said the new sorting measures were just the beginning,and would not instantly resolve Shanghai's mounting garbage challenges.
 
 "We need to step up the propaganda,and we need to step up the construction of infrastructure and guarantee that the separation of trash meets our requirements,"he said.
+
+``Reuters/20190706/Roxy``
